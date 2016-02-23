@@ -21,10 +21,11 @@
 
 2. Once wine is reduced, add shrimp and saute until just after they turn pink, which should be about 2-4 minutes depending on size.
 
-3. While, shrimp saute, melt 1 tablespoon of butter in a large skilet over medium heat. After butter melts, add tortillas and cheese enough for each. Use a brush or ladel to apply 1-2 tablespoons of the wine reduction over top of the shrimp and cheese.
+3. While shrimp saute, melt 1 tablespoon of butter in a large skilet over medium heat. After butter melts, add tortillas and cheese enough for each. Use a brush or ladel to apply 1-2 tablespoons of the wine reduction over top of the shrimp and cheese.
 
 4. After shrimp turn pink and cheese starts to melt, transfer shrimp to tortillas. Add cilantro and extra cheese over shrimp.
 
-5. Fold over tortillas and flip until golden on both sides. Enjoy with guacamole and salsa!
+5. Fold over tortillas and flip until golden on both sides. Contiune preparing tortillas until shrimp is exhausted or guests are full. Enjoy with guacamole and salsa!
+
 
 Serves 3-4 sober people; 2 otherwise.
