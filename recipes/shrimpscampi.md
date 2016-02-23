@@ -27,4 +27,4 @@
 
 5. Fold over tortillas and flip until golden on both sides. Enjoy with guacamole and salsa!
 
-Serves 3-4 sober people, 2 otherwise.
+Serves 3-4 sober people; 2 otherwise.
