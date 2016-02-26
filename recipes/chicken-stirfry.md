@@ -1,4 +1,4 @@
-# Chicken Brocoli Stirfry
+# Chicken Broccoli Stirfry
 
 ## Ingredients
 
