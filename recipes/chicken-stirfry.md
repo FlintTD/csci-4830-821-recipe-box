@@ -1,4 +1,4 @@
-# Chicken Broccoloi Stirfry
+# Chicken Brocoli Stirfry
 
 ## Ingredients
 
@@ -9,6 +9,7 @@
 *   Oil
 *   2 Garlic Gloves
 *   Soy Sauce
+*   2 Eggs
 
 ## Preparation
 
