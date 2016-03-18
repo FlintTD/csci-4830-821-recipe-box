@@ -19,8 +19,10 @@
 6.  Mix in the semi-sweet morsels
 7.  Once the morsels have mixed in, stir in the marshmallow fluff
 8.  Once the fluff has been stirred in, add the vanilla
-9.  Once mixed evenly, pour the mixture into the greased pan so that the surface is roughtly level
-10. Let the mixture cool to room temperature, or place in the s/refridgerator/refridgerator
+9.  Once mixed evenly, pour the mixture into the greased pan so that the 
+surface is roughtly level
+10. Let the mixture cool to room temperature, or place in the 
+s/refridgerator/refridgerator
 
 ## License
 
